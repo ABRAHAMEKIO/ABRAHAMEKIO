@@ -1,2 +1,1 @@
-# AbrahamEkio-
-readme for profile
+#HI 👋🏻 I'm Abraham or Ekio

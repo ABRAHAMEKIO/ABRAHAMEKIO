@@ -1,1 +1,1 @@
-# Hi I'm Abraham or Ekio 😔✋
+# Hi I'm Abraham Ekio 😔✋
